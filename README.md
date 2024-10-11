@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Yannel-Windyam-Juste-BELEMSIGRI
+- 👀 I’m interested in Artificial Intelligence and Cyber security
+- 🌱 I’m currently learning at Higher School of Technology of Fes in Morocco
